@@ -1,1 +1,1 @@
-# This-is-Business
+The website is for commercial purpose.
